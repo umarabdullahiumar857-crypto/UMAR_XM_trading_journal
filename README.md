@@ -1,0 +1,1 @@
+# UMAR_XM_trading_journal
